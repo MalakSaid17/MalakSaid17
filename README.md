@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MalakSaid17
-- 👀 I’m interested in learning new things
+- 👀 I am a translator and I'm interested in learning new things
 - 🌱 I’m currently learning digital marketing, web development and data analysis
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
